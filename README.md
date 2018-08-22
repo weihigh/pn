@@ -22,3 +22,6 @@ http://news.sina.com.cn/s/2018-08-03/doc-ihhehtqf9293826.shtml<br/>
 https://t66y.com/htm_data/7/1808/3252028.html<br/>
 调教三年圈养半年的两个极品萝莉--少女养成之我见<br/>
 https://t66y.com/htm_data/7/1808/3252098.html<br/>
+ 调教三年圈养半年的两个极品萝莉2--扑克风云和绿帽侠<br/>
+ https://t66y.com/htm_data/7/1808/3250962.html<br/>
+ 
