@@ -15,6 +15,10 @@ https://yourporn.sexy/blog/5abdb8eb6b5c8/0.html
 
 
 
-# porn网站
-夯先生事迹
-http://news.sina.com.cn/s/2018-08-03/doc-ihhehtqf9293826.shtml
+# porn帖子经验分享
+夯先生事迹<br/>
+http://news.sina.com.cn/s/2018-08-03/doc-ihhehtqf9293826.shtml<br/>
+调教三年圈养半年的两个极品萝莉3--双凤齐鸣之冰火两重天<br/>
+https://t66y.com/htm_data/7/1808/3252028.html<br/>
+调教三年圈养半年的两个极品萝莉--少女养成之我见<br/>
+https://t66y.com/htm_data/7/1808/3252098.html<br/>
